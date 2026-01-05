@@ -1,0 +1,2 @@
+# absensu
+smk pasundan malangbong
