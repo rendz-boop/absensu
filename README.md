@@ -1,2 +1,2 @@
-# absensu
+# absensi
 smk pasundan malangbong
